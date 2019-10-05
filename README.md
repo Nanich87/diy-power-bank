@@ -19,6 +19,6 @@ https://www.aliexpress.com/item/32914938287.html
 
 *Solder Wire*
 
-![Power Bank](https://drive.google.com/open?id=1nXDZH81ERX2Gvljfkytln3xsh-EK0tpU)
+![Power Bank](https://drive.google.com/uc?export=view&id=1nXDZH81ERX2Gvljfkytln3xsh-EK0tpU)
 
-![Power Bank](https://drive.google.com/open?id=1XIGODMY7teUlxNfYYbWodQAI9uUU727v)
+![Power Bank](https://drive.google.com/uc?export=view&id=1XIGODMY7teUlxNfYYbWodQAI9uUU727v)
