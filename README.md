@@ -9,9 +9,11 @@ https://www.aliexpress.com/item/32914938287.html
 
 *3. Flexible Wires*
 
-*4. 3x Screws (M3)*
+*4. 3x Screws (M3) / 4x Screws (M3) for v2*
 
 **Tools**
+
+*3D Printer*
 
 *Soldering Iron*
 
